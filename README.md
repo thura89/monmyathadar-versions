@@ -1,4 +1,0 @@
-thiriwinmongallery
-==================
-
-thiriwinmongallery
